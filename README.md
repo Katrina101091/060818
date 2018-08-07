@@ -1,7 +1,7 @@
 # 060818
-tgtg hyhyhy
+
 hyhyhy
 hjkkhh
 b b b b 
-
-
+Тренування
+12345678
